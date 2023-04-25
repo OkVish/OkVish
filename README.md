@@ -4,5 +4,5 @@
 
 ### Social Networks
 - https://twitter.com/okvish?lang=es
-- https://linkedin/in/1vish
+- https://linkedin.com/in/1vish
 - https://www.instagram.com/okvish/?hl=es-la
